@@ -6,3 +6,7 @@ lknsdklfnskldf
 
 
 Exla vitom vigacam ragaca daamata
+
+
+
+Mastershi vcer sxva ragacas
